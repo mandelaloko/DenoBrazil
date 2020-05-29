@@ -1,1 +1,2 @@
 # DenoBrazil
+ Novidades em breve!
